@@ -1,4 +1,4 @@
-# Design-a-Product-Packaging-InternServy-Task3
+# Design-a-Product-Packaging-InternSavy-Task3
 📷Img:-
 
 ![image](https://github.com/freinddeepti/Design-a-Product-Packaging-InternServy-Task3/assets/142092029/7e6a2e1d-551b-40e7-880c-ebd70d41ceaf)
